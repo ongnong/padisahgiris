@@ -1,4 +1,4 @@
-#  <a href="https://sekabet1452.com/">PADİŞAHBET SİTEYE GİR</a>
+#  <a href="https://padisahbet1125.com/">PADİŞAHBET SİTEYE GİR</a>
 <meta charset="UTF-8">
     <meta name="viewport" content="width=device-width, initial-scale=1.0">
 </head>
