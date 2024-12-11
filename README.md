@@ -4,7 +4,7 @@
 </head>
 <body>
 
-<a href="https://sekabet1452.com/" title="ResimLink - Resim Yükle"><img src="https://resimlink.com/YhZVb0K" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
+<a href="https://sekabet1452.com/" title="ResimLink - Resim Yükle"><img src="https://r.resimlink.com/YhZVb0K.jpg" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
 </a>
 
 # Padişahbet Giriş - 2024 Güncel Adres ve Hemen Üye Ol!
